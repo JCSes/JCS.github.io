@@ -15,4 +15,5 @@ Although it seemed like a success at first, at second it recieved many negative 
 
 
 _“To all our critics, we listen to that stuff and we digest a lot of it, but you’re way less important, and some of you are not important at all.” - Neil Druckmann_.
+
 ![lzB5N56GCue45NhyUss1qzZDWGUIUDjZnJc0BjW_S0s](https://user-images.githubusercontent.com/99879325/158158380-d27b4f2f-2d9b-4ac7-bec5-f383ce7737b7.jpg)
