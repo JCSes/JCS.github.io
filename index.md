@@ -14,6 +14,6 @@ Although it seems successful at first, at second it recieved many negative backl
 ![nsjkdfbaef](https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg)
 
 ## The Disrespectful Death of a Beloved Character Controversy
-Joel in the first hour of the game, dies in the hands of a new character known as Abby and we later learn that she was the daughter of a doctor that Joel Killed to save Ellie, his non-biological daughter. This made the fans furious, not because Joel died at all, but because the previous situations that led up to this doesn't stay consistent with his character. Joel was known to be uncaring for survivors, untrusting, he doesn't trust survivivors of the pandemic, or atleast in the first The Last of Us, due to an incident that caused his daughter's life years ago. Yet, its sequel ignores this which ultimately lead to his death.
-
 ![bfseiohfiosef](https://user-images.githubusercontent.com/99879325/158170667-91e4e64b-e7db-4eae-9b38-80cabd903b84.jpeg)
+
+Joel in the first hour of the game, dies in the hands of a new character known as Abby and we later learn that she was the daughter of a doctor that Joel Killed to save Ellie, his non-biological daughter. This made the fans furious, not because Joel died at all, but because the previous situations that led up to this doesn't stay consistent with his character. Joel was known to be uncaring for survivors, untrusting, he doesn't trust survivivors of the pandemic, or atleast in the first The Last of Us, due to an incident that caused his daughter's life years ago. Yet, its sequel ignores this which ultimately lead to his death.
