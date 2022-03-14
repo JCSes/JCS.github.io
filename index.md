@@ -1,8 +1,8 @@
-![nvadslkvnbslfaef](https://user-images.githubusercontent.com/99879325/158158864-f7b7f70c-f78a-4ab5-8fa0-403263f910af.jpeg)
+![test image 2](https://user-images.githubusercontent.com/99879325/158183230-f190f288-50db-40a9-b166-32357686c2c4.jpeg)
 
-# The Last of Us 2- An Infuriating Disappointment
+# The Last of Us 2- An Infuriating Disappointment (SPOILERS!)
 
-Owned by Jaime Chikko A. Sesgundo from 9 Gonzalez A 
+Owned by Jaime Chikko A. Sesgundo from 9 Gonzalez A
 
 ### Purpose
 This website will serve as an in-depth explanation to why the videogame, The Last of Us 2, became a controversy and has received many negative backlashes from its initial fans.
@@ -22,3 +22,10 @@ The most daunting realization is that relationship of Joel and Ellie has reached
 ![bfseiohfiosef](https://user-images.githubusercontent.com/99879325/158170667-91e4e64b-e7db-4eae-9b38-80cabd903b84.jpeg)
 
 ## The Ending Controversy
+Mostly, the controversy revolves around Ellie suddenly letting Abby live despite the journey she's gone through and everyone Abby has killed. A huge flaw in writing is shown when Ellie all of a sudden decides not to kill Abby just cause of a vision that slipped right in a very convenient moment. Ellie's sudden change in anger towards Abby isn't very well explained, which lead people to believe that this was just a flaw in writing, a very bad one. Some fans are simply disappointed that they didn’t get to kill Abby after she killed Joel, which I also agree with and supports the idea that some fans wanted a much more straightforward sequel complemented by a violent conclusion where unfortunately Naughty Dog failed to deliver. The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it makes the story rather vague. 
+
+![neslkfnklanfa](https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg)
+
+
+
+ 
