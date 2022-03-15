@@ -4,11 +4,7 @@
 
 Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
-#### Purpose
-
 This website will serve as an in-depth explanation to why the videogame, **The Last of Us 2**, became a controversy and has received many negative backlash from its initial fans.
-
-#### Additional Information 
 
 **The Last of Us 2** is a **story-driven, post-apocalyptic, action, drama, horror, thriller** videogame produced by **Naughty Dog** which is a sequel to the 2013, award winning videogame, **The Last of Us**. 
  
