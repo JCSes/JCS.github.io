@@ -1,6 +1,4 @@
-<p align="center">
-
-<img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="870" />
+<img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="800" />
  
 # The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
 
