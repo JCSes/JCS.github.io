@@ -2,7 +2,7 @@
  
 # The Last of Us 2: An Infuriating Disappointment (Gore and Spoilers!)
 
-Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
+###### Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
 This website will serve as an in-depth explanation to why the videogame, **The Last of Us 2**, became a controversy and has received many negative backlash from its initial fans.
 
@@ -53,7 +53,7 @@ Others believe _Abby's_ character falls short. They say that **The Last of Us Pa
 
 
 
-###### All this being said, The Last of Us 2 built a huge reputation and lost it. The writers of the story of The Last of us 2 were oblivious and careless to why The Last of Us was very well received and adored by its fans, which is the very reason why The Last of Us 2 didn't live up to the fans expectations, thus, was despised by them.
+##### All this being said, The Last of Us 2 built a huge reputation and lost it. The writers of the story of The Last of us 2 were oblivious and careless to why The Last of Us was very well received and adored by its fans, which is the very reason why The Last of Us 2 didn't live up to the fans expectations, thus, was despised by them.
 
 
 
