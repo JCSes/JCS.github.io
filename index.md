@@ -1,8 +1,6 @@
-<p align="center">
- 
 <img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="870" />
  
-# The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
+ # The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
 
 Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
@@ -21,8 +19,6 @@ Although it seems successful at first, at second it recieved many negative backl
 ## Death of a Beloved Character Controversy
 
 _Joel_ and his brother, _Tommy_ saves a new character named _Abby_ from a horde of infecteds, later on, _Joel_ dies in the hands of Abby cause we later learn that she did this out of revenge. _Abby_ was the daughter of a doctor that _Joel_ Killed in order to save _Ellie_, his non-biological daughter. 
-
-<p align="center">
  
 <img src="https://user-images.githubusercontent.com/99879325/158170667-91e4e64b-e7db-4eae-9b38-80cabd903b84.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="700" />
 
@@ -42,8 +38,6 @@ Some fans are simply disappointed that they didn’t get to kill _Abby_ after sh
 
 The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it made the story rather vague.  
  
-<p align="center">
- 
 <img src="https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="700" />
 
 Some fans also cite that the ending was too depressing and unsatisfying;
@@ -55,8 +49,6 @@ The ending was tragic and very depressing, not only did _Ellie_ got abandoned bu
 ## The Abby Controversy
 
 In the game, you get to play as Abby, Joel's killer. 
- 
-<p align="center">
  
 <img src="https://user-images.githubusercontent.com/99879325/158307400-8689dcdc-ee99-4499-8a97-fa185efa4add.jpeg" width="700" />
 
