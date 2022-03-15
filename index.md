@@ -1,7 +1,8 @@
 <p align="center">
 <img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="870" />
+<p align="justify">
 
-   # The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
+# The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
 
 Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
@@ -14,6 +15,7 @@ This website will serve as an in-depth explanation to why the videogame, **The L
 **The Last of Us 2** is a **story-driven, post-apocalyptic, action, drama, horror, thriller** videogame produced by **Naughty Dog** which is a sequel to the 2013, award winning videogame, **The Last of Us**. 
  
 <p align="justify">
+   
 On **December 3, 2016 The Last of Us 2** was first announced at the **PlayStation Experience event** which triggered an enormous hype across **The Last of Us** fanbase. On **February 21, 2020, Naughty Dog** revealed that it would be released, but later got cancelled due to problems that occurred. However on **June 19, 2020 The Last of Us 2** was finally released and millions of people worldwide bought and played it.
 
 Although it seems successful at first, at second it recieved many negative backlash from its own fans and separated the fanbase into two: the ones that loved it, and the ones that hated it, which formed controversy, and I will tackle on the topic of why other fans hated it.
