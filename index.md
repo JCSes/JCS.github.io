@@ -1,4 +1,4 @@
-<img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="720" />
+<img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="670" />
  
 # The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
 
@@ -38,11 +38,11 @@ Some fans are simply disappointed that they didn’t get to kill _Abby_ after sh
 
 The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it made the story rather vague.  
  
-<img src="https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="600" />
+<img src="https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="620" />
 
 Some fans also cite that the ending was too depressing and unsatisfying;
 
-The last part of the ending shows _Ellie_ walking to her barn home. She soon notices that she got abandoned and attempts to play the guitar with the song _Joel_ made for her. She attempts to play the song but unable to play it properly cause her fifth finger was bitten off by Abby during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar, standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
+The last part of the ending shows _Ellie_ walking to her barn home. She soon notices that she got abandoned and attempts to play the guitar with the song _Joel_ made for her. She attempts to play the song but unable to play it properly cause her fifth finger was bitten off by Abby during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
 
 The ending was tragic and very depressing, not only did _Ellie_ got abandoned but she was alone. Her greatest fear was being alone. Many fans were unsatisfied of the ending therefore disliked it. The story doesn't end with a satisfying conclusion to the problems but only added more problems to the mix.   
 
