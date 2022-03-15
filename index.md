@@ -10,11 +10,11 @@ This website will serve as an in-depth explanation to why the videogame, **The L
 
 ### Additional Information 
 
-**The Last of Us 2** is a story-driven, post-apocalyptic, action, drama, horror, thriller videogame produced by **Naughty Dog** which is a sequel to the 2013, award winning videogame, **The Last of Us**. 
+**The Last of Us 2** is a **story-driven, post-apocalyptic, action, drama, horror, thriller** videogame produced by **Naughty Dog** which is a sequel to the 2013, award winning videogame, **The Last of Us**. 
 
-On December 3, 2016 **The Last of Us 2** was first announced at the **PlayStation Experience event** which triggered an enormous hype across **The Last of Us** fanbase. On February 21, 2020, **Naughty Dog** revealed that it would be released, but later got cancelled due to problems that occurred. However on June 19, 2020 **The Last of Us 2** was finally released and millions of people worldwide bought and played it.
+On **December 3, 2016 The Last of Us 2** was first announced at the **PlayStation Experience event** which triggered an enormous hype across **The Last of Us** fanbase. On **February 21, 2020, Naughty Dog** revealed that it would be released, but later got cancelled due to problems that occurred. However on **June 19, 2020 The Last of Us 2** was finally released and millions of people worldwide bought and played it.
 
-Although it seems successful at first, at second it recieved many negative backlash from its own fans and it separated the fanbase into two: the ones that loved it, and the ones that hated it, which formed controversy, and I will tackle on the topic of why other fans hated it.
+Although it seems successful at first, at second it recieved many negative backlash from its own fans and separated the fanbase into two: the ones that loved it, and the ones that hated it, which formed controversy, and I will tackle on the topic of why other fans hated it.
 
 ## The Death of a Beloved Character Controversy
 
@@ -24,22 +24,33 @@ _Joel_ and his brother, _Tommy_ saves a new character named _Abby_ from a horde 
 
 This made the fans furious, not because _Joel_ died at all, but because of his decisions to the previous situations that led up to this doesn't stay consistent with his character. 
 
-_Joel_ was known to be uncaring for survivors, untrusting, he doesn't trust survivors of the pandemic due to an incident that caused his biological daughter's life years ago. He would even go as far as running one over rather than risk being betrayed by one. And **The Last of Us** fans knew this, yet, its sequel ignores this which ultimately led him to his death. 
+_Joel_ was known to be uncaring for survivors, untrusting, he doesn't trust survivors of the pandemic due to an incident that caused his biological daughter's life years ago. He would even go as far as running a survivor over rather than risk being betrayed by one. And **The Last of Us** fans knew this, yet, its sequel ignores it which ultimately led him to his death. His change in personality rather comes off as forced. Many fans view **Naughty Dog's** decision of changing _Joel's_ character as an unfair way to fit perfectly with plot of the story of the game.
 
-If the story would go on a more realistic route then _Joel_ would have prevented the mistakes he made, thus, prevented his death.
+If the story would go on a more realistic and fair route then _Joel_ would have prevented the mistakes he made, thus, prevented his death.
 
-The most daunting realization is that relationship of _Joel_ and _Ellie_ has reached to a full stop. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon.
-
+And seeing that Joel has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really depressing and is a contrast to the original plot of **The Last of Us'** plot which moreover focuses on their relationship as a father and daughter.
 
 ## The Ending Controversy
 
-For the most part, the controversy revolves around _Ellie_ suddenly letting _Abby_ live despite the journey she's gone through and everyone _Abby_ has killed. A huge flaw in writing is shown when _Ellie_ all of a sudden decides not to kill _Abby_ just cause of a vision that slipped right in a very convenient moment. _Ellie's_ sudden change in anger towards _Abby_ isn't very well explained, which led people to believe that this was just a flaw in writing, a very bad one. 
+For the most part, the controversy revolves around _Ellie_ suddenly letting _Abby_ live despite the journey she's gone through and everyone _Abby_ has killed. _Ellie_ all of a sudden decides not to kill _Abby_ just cause of a vision that slipped right in a very convenient moment. Her sudden change in anger towards _Abby_ isn't very well explained, and hasn't been very well established throughout the story which led people to believe that this was just a flaw in writing, a very bad one. 
 
-Some fans are simply disappointed that they didn’t get to kill _Abby_ after she killed _Joel_, which I also agree with and supports the idea that some fans wanted a much more straightforward sequel complemented by a bloody conclusion where unfortunately Naughty Dog failed to deliver. 
+Some fans are simply disappointed that they didn’t get to kill _Abby_ after she killed _Joel_. Which I also agree with and supports the idea that some fans wanted a much more straightforward sequel complemented by a bloody conclusion where Naughty Dog unfortunately choosed not to deliver. 
 
-The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it makes the story rather vague.  
+The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it made the story rather vague.  
 
 ![neslkfnklanfa](https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg)
+
+Some fans also cite that the ending was too depressing and unsatisfying;
+
+The last part of the ending shows _Ellie_ walking to her barn home. She soon notices that she got abandoned and attempts to play the guitar with the song _Joel_ made for her. She attempts to play the song but unable to play it properly cause her fifth finger was bitten off by Abby during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar, standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
+
+The ending was tragic and very depressing, not only did _Ellie_ got abandoned but she was alone. Her greatest fear was being alone. Many fans were unsatisfied of the ending therefore disliked it. The story doesn't end with a satisfying conclusion to the problems but only added more problems to the mix.   
+
+## The Abby Controversy
+
+In the game, you get to play as Abby, Joel's killer. 
+
+![nlesnfiaweaw](https://user-images.githubusercontent.com/99879325/158298950-a68426db-1339-4817-abee-c45a8f334906.png)
 
 
 
