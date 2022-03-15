@@ -50,7 +50,7 @@ The ending was tragic and very depressing, not only did _Ellie_ got abandoned bu
 
 In the game, you get to play as Abby, Joel's killer. 
 
-<img src="https://user-images.githubusercontent.com/99879325/158298950-a68426db-1339-4817-abee-c45a8f334906.png" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="700" />
+<img src="https://user-images.githubusercontent.com/99879325/158307400-8689dcdc-ee99-4499-8a97-fa185efa4add.jpeg" width="700" />
 
 
 
