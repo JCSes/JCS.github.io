@@ -14,7 +14,7 @@ Although it seemed successful at first, at second it received many negative back
 
 ## Death of a Beloved Character Controversy
 
-_Joel_ and his brother, _Tommy_ saves a new character named _Abby_ from a horde of infecteds, later on, _Joel_ dies in the hands of _Abby_ cause we later learn that she did this out of revenge. _Abby_ was the daughter of a doctor that _Joel_ Killed in order to save _Ellie_, his non-biological daughter. 
+_Joel_ and his brother, _Tommy_ saves a new character named _Abby_ from a horde of infecteds, later on, _Joel_ dies in the hands of _Abby_ cause we later learn that she did this out of revenge. _Abby_ was the daughter of a doctor that _Joel_ Killed in order to save _Ellie_, his figurative daughter. 
  
 <img src="https://user-images.githubusercontent.com/99879325/158170667-91e4e64b-e7db-4eae-9b38-80cabd903b84.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="600" />
 
@@ -24,7 +24,7 @@ _Joel_ was known to be uncaring for survivors, untrusting, he doesn't trust surv
 
 If the story would go on a more realistic and fair route then _Joel_ would have prevented the mistakes he made, thus, prevented his death.
 
-And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really depressing and is a contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a non-biological family, as a father and daughter.
+And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really depressing and is a contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a figurative family, as a father and daughter.
 
 ## The Ending Controversy
 
@@ -48,7 +48,7 @@ In the game, you get to play as _Abby, Joel's_ killer for about half of the game
 
 _Abby_ not only had an athletic and jacked-up body that rivaled most of the game's male characters, but she was also responsible for the death of a significant character only a few hours into the game. This made her an obvious target for series fans, and the enmity was heightened when it was revealed that players will spend the most of the game playing as _Abby_ rather than the much-adored _Ellie_.
 
-Others believe _Abby's_ character falls short. They say that **The Last of Us Part 2** doesn't give them the chance to really care about _Abby's_ Character as they do about the much-adored _Ellie_, which kind of ruins the concept of witnessing the story from two different perspectives. Similarly, many claim that they were eager to see _Ellie_ and _Joel's_ narrative come to a satisfying close. But instead, resented to having too much time spent on a new character, _Abby_.
+Others believe _Abby's_ character falls short. They say that **The Last of Us Part 2** doesn't give them the chance to really care about _Abby's_ Character as they do about _Ellie_, which kind of ruins the concept of witnessing the story from two different perspectives. Similarly, many claim that they were eager to see _Ellie_ and _Joel's_ narrative come to a satisfying close. But instead, resented to having too much time spent on a new character, _Abby_.
 
 
 
