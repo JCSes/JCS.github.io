@@ -1,8 +1,9 @@
+<p align="center">
 <img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="870" />
 
-# The Last of Us 2- An Infuriating Disappointment (SPOILERS!)
+   # The Last of Us 2- An Infuriating Disappointment (Gore and Spoilers!)
 
-Owned by Jaime Chikko A. Sesgundo from 9 Gonzalez A
+Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
 ### Purpose
 
@@ -11,7 +12,8 @@ This website will serve as an in-depth explanation to why the videogame, **The L
 ### Additional Information 
 
 **The Last of Us 2** is a **story-driven, post-apocalyptic, action, drama, horror, thriller** videogame produced by **Naughty Dog** which is a sequel to the 2013, award winning videogame, **The Last of Us**. 
-
+ 
+<p align="justify">
 On **December 3, 2016 The Last of Us 2** was first announced at the **PlayStation Experience event** which triggered an enormous hype across **The Last of Us** fanbase. On **February 21, 2020, Naughty Dog** revealed that it would be released, but later got cancelled due to problems that occurred. However on **June 19, 2020 The Last of Us 2** was finally released and millions of people worldwide bought and played it.
 
 Although it seems successful at first, at second it recieved many negative backlash from its own fans and separated the fanbase into two: the ones that loved it, and the ones that hated it, which formed controversy, and I will tackle on the topic of why other fans hated it.
@@ -20,6 +22,7 @@ Although it seems successful at first, at second it recieved many negative backl
 
 _Joel_ and his brother, _Tommy_ saves a new character named _Abby_ from a horde of infecteds, later on, _Joel_ dies in the hands of Abby cause we later learn that she did this out of revenge. _Abby_ was the daughter of a doctor that _Joel_ Killed in order to save _Ellie_, his non-biological daughter. 
 
+<p align="center">
 <img src="https://user-images.githubusercontent.com/99879325/158170667-91e4e64b-e7db-4eae-9b38-80cabd903b84.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="700" />
 
 This made the fans furious, not because _Joel_ died at all, but because of his decisions to the previous situations that led up to this doesn't stay consistent with his character. 
@@ -37,7 +40,8 @@ For the most part, the controversy revolves around _Ellie_ suddenly letting _Abb
 Some fans are simply disappointed that they didn’t get to kill _Abby_ after she killed _Joel_. Which I also agree with and supports the idea that some fans wanted a much more straightforward sequel complemented by a bloody conclusion where Naughty Dog unfortunately choosed not to deliver. 
 
 The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it made the story rather vague.  
-
+ 
+<p align="center">
 <img src="https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="700" />
 
 Some fans also cite that the ending was too depressing and unsatisfying;
@@ -49,7 +53,8 @@ The ending was tragic and very depressing, not only did _Ellie_ got abandoned bu
 ## The Abby Controversy
 
 In the game, you get to play as Abby, Joel's killer. 
-
+ 
+<p align="center">
 <img src="https://user-images.githubusercontent.com/99879325/158307400-8689dcdc-ee99-4499-8a97-fa185efa4add.jpeg" width="700" />
 
 
