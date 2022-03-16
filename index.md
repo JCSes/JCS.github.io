@@ -52,7 +52,7 @@ Others believe _Abby's_ character falls short. They say that **The Last of Us Pa
 
 
 
-All this being said, The Last of Us 2 built a huge reputation and lost it. The writers of the story of The Last of us 2 were oblivious and careless to why The Last of Us was very well received and adored by its fans, which is the very reason why The Last of Us 2 didn't live up to its fans expectations, thus, was despised by most of them.
+All this being said, The Last of Us 2 built a huge reputation and lost it. The writers of the story of The Last of us 2 were oblivious and careless to why The Last of Us was very well received and adored by its fans, which is the very reason why The Last of Us 2 didn't live up to most of its fans expectations, thus, was despised by most of them.
 
 
 
