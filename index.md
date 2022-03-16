@@ -21,11 +21,11 @@ This made the fans furious, not because _Joel_ died at all, but because of his d
 
 _Joel_ was known to be uncaring for survivors, untrusting, he doesn't trust survivors of the pandemic due to an incident that caused his biological daughter's life years ago. He would even go as far as running a survivor over rather than risk being betrayed by one. And **The Last of Us** fans knew this, yet, its sequel ignores it which ultimately led him to his death. 
 
-His change in personality rather comes off as forced. Many fans view **Naughty Dog's** decision in changing _Joel's_ character as an unfair way to perfectly fit with the plot of the story.
+His change in personality rather comes off as forced, many fans view **Naughty Dog's** decision in changing _Joel's_ character as an unfair way to perfectly fit with the plot of the story. 
 
 If the story would have gone on a more realistic and fair route then _Joel_ would have prevented the mistakes he made, thus, prevented his death.
 
-And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really depressing and is a contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a figurative family, as a father and daughter.
+And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really daunting and is a contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a figurative family, as a father and daughter.
 
 ## The Ending Controversy
 
@@ -37,9 +37,9 @@ The whole moral of the game's story is basically revenge is bad but fails to del
  
 <img src="https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="620" />
 
-Other fans also cite that the ending was too depressing and unsatisfying. The last part of the ending shows _Ellie_ walking to her barn home. She soon notices that she got abandoned and attempts to play the guitar with the song _Joel_ made for her. She attempts to play the song but unable to play it properly cause her fifth finger was bitten off by _Abby_ during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
+Other fans also cite that the ending was too depressing and unsatisfying. The last part of the ending shows _Ellie_ walking to her barn home. She soon notices that she got abandoned and attempts to play the guitar with the song _Joel_ made for her. She attempts to play the song but unable to do so properly since her fifth finger was bitten off by _Abby_ during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
 
-The ending was tragic and very depressing, not only did _Ellie_ got abandoned but she was alone. Her greatest fear was being alone. Many fans were unsatisfied of the ending therefore ended up disliking it. The story doesn't end with a satisfying conclusion to the problems but only added more problems to the mix.   
+The ending was tragic and very depressing, not only did _Ellie_ got abandoned but she was alone. Her greatest fear was being alone. Many fans were unsatisfied of the ending therefore ended up disliking it. The story doesn't end with a satisfying solution to the problems but only added more problems to the mix.   
 
 ## The Abby Controversy
 
@@ -47,7 +47,7 @@ In the game, you get to play as _Abby, Joel's_ killer for about half of the game
 
 <img src="https://user-images.githubusercontent.com/99879325/158307400-8689dcdc-ee99-4499-8a97-fa185efa4add.jpeg" width="600" />
 
-_Abby_ not only had an athletic and jacked-up body that rivaled most of the game's male characters, but she was also responsible for the death of a significant character only a few hours into the game. This made her an obvious target for series fans, and the enmity was heightened when it was revealed that players will spend the most of the game playing as _Abby_ rather than the much-adored _Ellie_.
+_Abby_ not only had an athletic and jacked-up body that rivaled most of the game's male characters, but she was also responsible for the death of a significant character only a few hours into the game. This made her an obvious target for the series' fans, and the enmity was heightened when it was revealed that players will spend the most of the game playing as _Abby_ rather than the much-adored _Ellie_.
 
 Others believe _Abby's_ character falls short. They say that **The Last of Us Part 2** doesn't give them the chance to really care about _Abby's_ Character as they do about _Ellie_, which kind of ruins the concept of witnessing the story from two different perspectives. Similarly, many claim that they were eager to see _Ellie_ and _Joel's_ narrative come to a satisfying close. But instead, resented to having too much time spent on a new character, _Abby_.
 
