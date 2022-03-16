@@ -1,7 +1,6 @@
 <img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="670" />
  
 # The Last of Us 2: An Infuriating Disappointment (Gore and Spoilers!)
-
 ###### Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
 This website will serve as an in-depth explanation to why the videogame, **The Last of Us 2**, became a controversy and has received many negative backlash from its initial fans.
