@@ -21,7 +21,7 @@ This made the fans furious, not because _Joel_ died at all, but because of his d
 
 _Joel_ was known to be uncaring for survivors, untrusting, he doesn't trust survivors of the pandemic due to an incident that caused his biological daughter's life years ago. He would even go as far as running a survivor over rather than risk being betrayed by one. And **The Last of Us** fans knew this, yet, its sequel ignores it which ultimately led him to his death. 
 
-His change in personality rather comes off as forced, many fans view **Naughty Dog's** decision in changing _Joel's_ character as an unfair way to perfectly fit with the plot of the story. If the story would have gone on a more realistic and fair route then _Joel_ would have prevented the mistakes he made, thus, prevented his death.
+His change in personality rather comes off as forced, many fans view **Naughty Dog's** decision in changing _Joel's_ character as an unfair way to perfectly fit with the plot of the story. If the story would have gone on a more realistic and fair route then _Joel_ would have avoided the mistakes he made, thus, prevented his death.
 
 And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really daunting and is a contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a figurative family, as a father and daughter.
 
