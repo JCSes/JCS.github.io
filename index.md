@@ -1,6 +1,6 @@
 <img src="https://user-images.githubusercontent.com/99879325/158157230-127f5692-837f-42e2-85be-f75b2befe687.jpg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="670" />
  
-# The Last of Us 2: An Infuriating Disappointment (Gore and Spoilers!)
+# The Last of Us 2: An Infuriating Rage (Gore and Spoilers!)
 ###### Owned by _Jaime Chikko A. Sesgundo_ from _9 Gonzalez A_
 
 This website will serve as an in-depth explanation to why the videogame, **The Last of Us 2**, became a controversy and has received many negative backlash from its initial fans.
@@ -31,13 +31,13 @@ And seeing that _Joel_ has died, fans were suppose to accept the fact that relat
 
 For the most part, the controversy revolves around _Ellie_ suddenly letting _Abby_ live despite the journey she's gone through and everyone _Abby_ has killed. _Ellie_ all of a sudden decides not to kill _Abby_ just cause of a vision that slipped right in a very convenient moment. Her sudden change in anger towards _Abby_ due to the vision isn't very well explained, and hasn't been very well established throughout the story which led people to believe that this was just a flaw in writing, a very bad one. 
 
-Some fans are simply disappointed that they didn’t get to kill _Abby_ after she killed _Joel_. Which I also agree with and supports the idea that some fans wanted a much more straightforward sequel complemented by a bloody conclusion where **Naughty Dog** unfortunately choosed not to deliver. 
+Some fans are simply disappointed that they didn’t get to kill _Abby_ after she killed _Joel_. Which I also agree with and supports the idea that some fans wanted a much more straightforward sequel complemented by a bloody conclusion where **Naughty Dog** unfortunately chose not to deliver. 
 
-The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple that it made the story rather vague.  
+The whole moral of the game's story is basically revenge is bad but fails to deliver a message so simple which made the story rather vague.  
  
 <img src="https://user-images.githubusercontent.com/99879325/158190985-0b86a2f6-66e5-422a-b119-0acb06b58229.jpeg" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="620" />
 
-Other fans also cite that the ending was too depressing and unsatisfying. The last part of the ending shows _Ellie_ walking to her barn home. She soon notices that she got abandoned and attempts to play the guitar with the song _Joel_ made for her. She attempts to play the song but unable to do so properly since her fifth finger was bitten off by _Abby_ during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
+Other fans also cite that the ending was too depressing and unsatisfying. The last part of the ending shows _Ellie_ walking towards her farm-like home. She soon notices that she got abandoned and attempts to play a song _Joel_ made for her with a guitar to calm herself down. She attempts to play the song but unable to properly do so since her fifth finger was bitten off by _Abby_ during the fight scene. As she accepts that she can't play the song, she slowly puts down the guitar standing up, on a window upstairs and the camera zooms in on its headstock after which the credits roll.
 
 The ending was tragic and very depressing, not only did _Ellie_ got abandoned but she was alone. Her greatest fear was being alone. Many fans were unsatisfied of the ending therefore ended up disliking it. The story doesn't end with a satisfying solution to the problems but only added more problems to the mix.   
 
@@ -51,7 +51,7 @@ _Abby_ not only had an athletic and jacked-up body that rivaled most of the game
 
 Others believe _Abby's_ character falls short. They say that **The Last of Us Part 2** doesn't give them the chance to really care about _Abby's_ Character as they do about _Ellie_, which kind of ruins the concept of witnessing the story from two different perspectives. Similarly, many claim that they were eager to see _Ellie_ and _Joel's_ narrative come to a satisfying close. But instead, resented to having too much time spent on a new character, _Abby_.
 
-All this being said, **The Last of Us 2** built a huge reputation and lost it. The writers of the story in the game were oblivious and careless to why **The Last of Us** was very well received and adored by its fans, which is the very reason why **The Last of Us 2** didn't live up to most of its fans expectations, thus, was despised by most of them.
+All this being said, **The Last of Us 2** built a huge reputation and lost it. The writers of the story in the game were oblivious and careless to why **The Last of Us** was very well received and adored by its fans, which is the very reason why **The Last of Us 2** didn't live up to most of its fans expectations, thus, was despised by most of them. 
 
 
 
