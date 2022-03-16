@@ -49,10 +49,7 @@ _Abby_ not only had an athletic and jacked-up body that rivaled most of the game
 
 Others believe _Abby's_ character falls short. They say that **The Last of Us Part 2** doesn't give them the chance to really care about _Abby's_ Character as they do about _Ellie_, which kind of ruins the concept of witnessing the story from two different perspectives. Similarly, many claim that they were eager to see _Ellie_ and _Joel's_ narrative come to a satisfying close. But instead, resented to having too much time spent on a new character, _Abby_.
 
-
-
-
-All this being said, The Last of Us 2 built a huge reputation and lost it. The writers of the story of The Last of us 2 were oblivious and careless to why The Last of Us was very well received and adored by its fans, which is the very reason why The Last of Us 2 didn't live up to most of its fans expectations, thus, was despised by most of them.
+All this being said, **The Last of Us 2** built a huge reputation and lost it. The writers of the story in the game were oblivious and careless to why **The Last of Us** was very well received and adored by its fans, which is the very reason why **The Last of Us 2** didn't live up to most of its fans expectations, thus, was despised by most of them.
 
 
 
