@@ -22,7 +22,7 @@ _Joel_ was known to be uncaring for survivors, untrusting, he doesn't trust the 
 
 His change in personality rather comes off as forced, many fans view **Naughty Dog's** decision in changing _Joel's_ character as an unfair way to perfectly fit within the plot of the story. If it would have gone on a more realistic and fair route then _Joel_ would have avoided the mistakes he made, thus, prevented his death.
 
-And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really daunting and is a contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a figurative family, as a father and daughter.
+And seeing that _Joel_ has died, fans were suppose to accept the fact that relationship of _Joel_ and _Ellie_ would be discontinued. That instead, most of _Joel’s_ appearances and interactions with _Ellie_ will mostly be only limited to flashbacks from thereon. Which is really daunting and is an exact contrast to the original plot of **The Last of Us** which moreover focuses on their relationship as a figurative family, as a father and daughter.
 
 ## The Ending Controversy
 
