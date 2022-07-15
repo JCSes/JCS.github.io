@@ -2,7 +2,7 @@
  
 # The Last of Us 2: An Infuriating Disappointment (Gore and Spoilers!)
 
-This website will serve as an in-depth explanation to why the videogame, **The Last of Us 2**, became a controversy and has garnered many negative backlash from its initial fans.
+This site will serve as an in-depth explanation to why the videogame, **The Last of Us 2**, became a controversy and has garnered many negative backlash from its initial fans.
 
 **The Last of Us 2** is a **story-driven, post-apocalyptic, action, drama, horror, thriller** videogame produced by **Naughty Dog** which is a sequel to the 2013, award winning videogame, **The Last of Us**. 
  
